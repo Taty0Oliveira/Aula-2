@@ -1,3 +1,2 @@
-# Aula-2
-![](https://giphy.com/gifs/garenafreefiremena-free-fire-mena-max-ofFRaLVfJ6RZH6dXYt)
-
+#Aula2
+![](https://giphy.com/gifs/PremioeSportsBR-bruno-goes-nobru-LnEHL0Qsz9Tiz5WipS)
